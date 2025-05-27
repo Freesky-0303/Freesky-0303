@@ -37,9 +37,13 @@
 
 ### 📫 應徵方式
 
-請將您的履歷 / GitHub / 代表作品 傳TG：Luckyjobs
+請將您的履歷 / GitHub / 代表作品 
+聯絡TG：Luckyjobs
 讓我們進一步了解職缺詳情！
 
 ---
-
+[
+](https://t.me/Luckjobss
+@twgroupjob
+請點閱這2個頻道，參考各個工作JD機會。謝謝)
 🙌 歡迎有技術熱情、有責任感的你加入我們，一起打造穩健高效的服務架構！
